@@ -2,4 +2,4 @@
 
 _Built as part of The Odin Project curriculum_ 🧙‍♂️
 
-Nov 1, 2025
+11.01.2025 (you can read this as the start of the year or the end, I leave that up to you strange traveler.)
